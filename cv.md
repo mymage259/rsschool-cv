@@ -1,6 +1,7 @@
 # Aleksandr Labuko
 
 *e-mail*: **labuko@mail.ru**   
+*VK*: **https://vk.com/mymage**
 
 ### Objectives
 Gaining knowledge and practical experience.
