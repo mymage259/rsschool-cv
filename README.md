@@ -1,2 +1,2 @@
 # rsschool-cv
-https://mymage259.github.io/rsschool-cv/cv
+https://mymage259.github.io/rsschool-cv/
